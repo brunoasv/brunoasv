@@ -1,1 +1,1 @@
-Passionate about learning new technologies: Cloud, DevOps, Networking, Blockchain
+Passionate about learning new technologies: Cloud, DevOps, Networking & Blockchain.
